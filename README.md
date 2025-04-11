@@ -1,1 +1,1 @@
-# Generative_AI_Research_49057553
+This is  organised by various folders, everyone can explore this chanel and give your advice
